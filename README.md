@@ -1,0 +1,1 @@
+# sportsmaj-sitemap
